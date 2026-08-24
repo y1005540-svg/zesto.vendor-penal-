@@ -1,1 +1,0 @@
-# zesto.vendor-penal-
